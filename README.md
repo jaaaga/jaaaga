@@ -1,0 +1,2 @@
+# jaaaga
+Desk for Rent, Private Work Space, Quick Office, Private cabins with all amenities like.. NOTE: Fully Sanitized Office daily * very near to Metro &amp; MMTS  * 24hr working environment * 200 Mbps internet unlimited * Unlimited Prints * Unisex Toilets * Mosquito Free Zone * Ac and Non-Ac * Free Conference Rooms * Tuffend Glass Boards for marking, * Bio-metric for attendance monitor. * Name Board Display * Coffee, Tea &amp; MILK * OFFICE ASSISTANCE * CCTV COVER &amp; Mobile access * 2 &amp; 4 Wheeler Parking  Google with "jaaaga" for directions  *T&amp;C
